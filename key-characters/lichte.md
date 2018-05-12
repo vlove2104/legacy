@@ -1,3 +1,7 @@
 # Lichte
 
-## Misbelief
+## thing she wants
+
+## thing she needs
+
+## misbelief
