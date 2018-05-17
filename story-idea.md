@@ -1,5 +1,9 @@
-Lichte is ready to become an official knight and continue her family's tradition to protect the Reinhart family, but a small part of her longed to leave everything behind and join her estranged father on his ship to explore the continent.
+A young woman trains all her life to becoome a knight and follow her family's legacy in protecting her late lord's family.
 
-When she learns that her father was arrested and brought to the capital for piracy, she defies her family and leaves to rescue her father. Along the way, she befriends a privateer and discovers the wild side of her charge, the young Reinhart heir, who secretly followed her on her quest.
+At the eve of her knighthood to her young charge, she learns that her estranged father is captured by pirates at sea. She leaves and goes to rescue him.
 
-Lichte arrives at the capital, but before she can rescue her father, she is caught into the conflict between the brutal but collasping monarchy and the revolution struggling to overthrow it. Her hidden connection to the revolution has her questioning her idea of honour and duty to those she care for.
+At a port, she encounters a young privateer and strikes a deal with him to rescue her father, not knowing that this was part of a plan to find her family.
+
+She learns the turmoil the capital is in due to a civil war and discovers her and the privateer's connections to the heart of the conflict.
+
+With the new relevation of her family's history, she begins to wonder about her role in protect the family's legacy and what her duty truly is.
