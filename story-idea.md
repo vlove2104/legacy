@@ -1,4 +1,4 @@
-A young woman trains all her life to becoome a knight and follow her family's legacy in protecting her late lord's family.
+A young woman trains all her life to become a knight and follow her family's legacy in protecting her late lord's family.
 
 At the eve of her knighthood to her young charge, she learns that her estranged father is captured by pirates at sea. She leaves and goes to rescue him.
 
